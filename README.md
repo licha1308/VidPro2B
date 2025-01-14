@@ -1,1 +1,3 @@
-# VidPro2B
+# Leah's Vid Pro portfolio 2025
+
+Add bio for self...
